@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning programmer(T.I).
 - 💞️ I’m looking to collaborate on with my knowledge and dedication.
 - 📫 How to reach me e-mail: eaiisabele@gmail.com
-- 😄 Pronouns: 
+- 😄 Pronouns: ela/dela
 - ⚡ Fun fact: Estou à procura de experiência profissional. Onde eu possa mostrar minhas habilidades e capacidades em busca do crescimento e o principal que é a experiência profissional.
 
 <!---
